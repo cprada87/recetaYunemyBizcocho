@@ -22,3 +22,5 @@
 4. Añadimos el chocolate y la vainilla, y mezclamos de nuevo.
 5. Pon tu taza en el microondas y cocina 3 minutos a 1000 vatios (alto). El bizcocho se elevará por encima de la taza, pero no te alarmes. Retiramos del microondas y espolvoreamos encima chispas o trozos de chocolate. También podéis añadir azúcar glas, nata o lo que se os antoje dependiendo de lo golosos que estéis en ese momento.
 6. Dejamos enfriar un poco, y luego a comer este delicioso bizcocho microondas
+
+[FUENTE RECETA](https://www.pequerecetas.com/receta/bizcocho-microondas/)
